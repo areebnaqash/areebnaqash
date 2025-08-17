@@ -1,2 +1,2 @@
-**Areeb Naqash** — that's my name.
+**Areeb Naqash** — that's my name.\
 📍 Srinagar, Kashmir
